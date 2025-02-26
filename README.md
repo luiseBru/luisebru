@@ -16,4 +16,3 @@ Adoro cuidadar dos meus animais, nadar, ler poemas e livros de ficção,
 ![WhatsApp Image 2025-02-26 at 11 26 37](https://github.com/user-attachments/assets/abcde271-a27f-40fe-b08e-072f5b7a9ccd)
 ![WhatsApp Image 2025-02-26 at 11 27 17](https://github.com/user-attachments/assets/e3f7f845-3b26-4ec4-8f61-f6b15b4f6407)
 
-
